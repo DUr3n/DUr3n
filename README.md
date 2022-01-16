@@ -1,5 +1,4 @@
-- 👋 Hi, I’m @DUr3n
-- 📫 How to reach me sevenhours871@gmail.com
+- 👋 Hi, I’m Motihy
 
 <!---
 DUr3n/DUr3n is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
