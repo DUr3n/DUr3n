@@ -1,2 +1,2 @@
-- 👋 halo, nama aku timothy. dah lah
+- 👋 halo, nama aku timothy bryant.
 
