@@ -1,2 +1,2 @@
-- 👋aww takut, bryant.
+gak jago heking mas
 
